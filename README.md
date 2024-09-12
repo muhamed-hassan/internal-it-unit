@@ -17,6 +17,4 @@ System is [secured](https://en.wikipedia.org/wiki/Security) 🛡 by design AKA w
 
 ***
 
-![hd-madara-uchiha-wallpaper-1920x1080_48](https://user-images.githubusercontent.com/17825804/219564495-6f3ca3cc-6576-4ebc-b977-00b123af45af.jpg)
-
-![Akatsuki-Desktop-Wallpaper](https://user-images.githubusercontent.com/17825804/233147949-8b123603-3184-48be-bf47-876ce8832112.jpg)
+![d3a23rp-e60d2916-f827-4606-b243-2646f1714249](https://github.com/user-attachments/assets/4b276b8f-7f53-4fa9-8093-ce8148756f6d)
